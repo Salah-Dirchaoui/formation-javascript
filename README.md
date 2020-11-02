@@ -1,0 +1,1 @@
+## this is the best javascript training in the world ☺
